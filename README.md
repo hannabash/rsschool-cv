@@ -1,1 +1,0 @@
-https://hannabash.github.io/rsschool-cv/cvgit 
